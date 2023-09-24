@@ -1,4 +1,4 @@
-- Information security specialist and web developer.
+- Cybersecurty, Delevoper, and more... 
 
 
 <!---
